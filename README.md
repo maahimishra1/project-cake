@@ -1,1 +1,8 @@
-# project-red-velvet-cake
+# project cheesecake
+The cheesecake filling is made in 2 bowls. In the 1st bowl, beat heavy cream into stiff peaks. In the 2nd bowl, beat the remaining ingredients. Fold everything together. Here are the cheesecake filling ingredients.Heavy Cream: Beating heavy cream into stiff peaks most important step in this entire recipe and *the secret* to a thick no-bake cheesecake filling.
+Cream Cheese: Make sure you use blocks of real cream cheese, not cream cheese spread. I tested with varying amounts and 24 ounces (three 8 ounce blocks) produced a thick, yet creamy cheesecake filling. Make sure it’s room temperature.
+Granulated Sugar: Granulated sugar breaks down the cream cheese. It’s easy to go overboard on sugar, but keep it light. Less sugar helps the tangy cream cheese and vanilla flavors stand out.
+Confectioners’ Sugar: A smidge of confectioners’ sugar thickens the filling, while also keeping it light. I tested with flour and cornstarch and both left a chalky aftertaste. I recommend sticking with confectioners’ sugar.
+Sour Cream: Add a little sour cream for that trademark tangy cheesecake flavor.
+Vanilla Extract & Lemon Juice: A splash of both flavors add a little something special.As mentioned, the most important step is to beat cold heavy cream into peaks. Fold the whipped cream into the cheesecake filling gently so you don’t deflate the air. The air creates a delicious mousse-like consistency and solidifies the filling in the refrigerator.
+Refrigerate the cheesecake for at least 6-8 hours, but overnight is better. For a sturdy no-bake cheesecake with beautifully neat slices, refrigerate for at least 12 hours. This makes for a great make-ahead dessert! Do not freeze the cheesecake to set it. The filling won’t slice and you’ll lose the velvet texture!
